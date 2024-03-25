@@ -1,0 +1,1 @@
+emae kak slozhno vse
